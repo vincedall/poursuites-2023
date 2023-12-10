@@ -8,10 +8,10 @@ Mise à jour au 25 novembre 2023 : Les poursuites en responsabilité civile à l
 	
 Le 24 octobre 2023 : 
 
-	1. j'ai accepté de retirer la défenderesse Johanne April de la poursuite;
-	2. Pour le PGQ, essentiellement, il fallait que je précise ma demande afin de demander à la cour de déclarer inconstitutionnelle certaines lois ou la façon dont elle sont utilisée pour pouvoir poursuivre le PGQ en dommages et intérêts conçernant des dommages en lien avec ces lois tel que requis par les articles 76 et 77 du c.p.c du Québec. J'ai précisé ma demande dans les délais soit pour le 7 novembre 2023. Dans mes précisions, je mentionne que le PGQ m'a causé des dommages conçernant de la négligence en lien avec la psychiatrie forcée ainsi qu'en édictant des lois inconsitutionnelles qui permettent aux autorités conçernées de causer ces dommages en étant sanctionnées par la loi. Le PGQ a mentionné qu'il pourrait déposer une autre requête en irrecevabilité qui dépendrait des précisions fournis. Je n'ai pas eu de retour la-dessus jusqu'à maintenant;
-	3. Pour les autres requêtes, je suis toujours en attente d'un jugement après les représentations du 24 octobre;
-	4. J'ai accepté de signer des autorisations en accès à plusieurs documents à condition qu'ils soient déposés sous scellé advenant le cas;
+1. j'ai accepté de retirer la défenderesse Johanne April de la poursuite;
+2. Pour le PGQ, essentiellement, il fallait que je précise ma demande afin de demander à la cour de déclarer inconstitutionnelle certaines lois ou la façon dont elle sont utilisée pour pouvoir poursuivre le PGQ en dommages et intérêts conçernant des dommages en lien avec ces lois tel que requis par les articles 76 et 77 du c.p.c du Québec. J'ai précisé ma demande dans les délais soit pour le 7 novembre 2023. Dans mes précisions, je mentionne que le PGQ m'a causé des dommages conçernant de la négligence en lien avec la psychiatrie forcée ainsi qu'en édictant des lois inconsitutionnelles qui permettent aux autorités conçernées de causer ces dommages en étant sanctionnées par la loi. Le PGQ a mentionné qu'il pourrait déposer une autre requête en irrecevabilité qui dépendrait des précisions fournis. Je n'ai pas eu de retour la-dessus jusqu'à maintenant;
+3. Pour les autres requêtes, je suis toujours en attente d'un jugement après les représentations du 24 octobre;
+4. J'ai accepté de signer des autorisations en accès à plusieurs documents à condition qu'ils soient déposés sous scellé advenant le cas;
 
 Le 15 novembre 2023 : 
 
