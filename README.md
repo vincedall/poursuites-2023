@@ -1,10 +1,12 @@
+Mise à jour au 9 décembre 2023 : J'ajoute la demande (modifiée) (remodifiée) que j'ai déposée pour le 7 novembre 2023, que j'ai notifiée à la défense et qui conçerne les articles 76 et 77 du c.p.c. J'ajoute également une requête en identification d'un témoin clé que j'entend déposée prochainement au greffe du palai de justice de Québec et que j'ai notifiée dans les derniers jours à la défense en espérant une réponse sans nécessiter le dépôt de la requête et une représentation à la cour. Je n'ai pas eu de réponse à cette demande jusqu'à maintenant.
+
 Mise à jour au 25 novembre 2023 : Les poursuites en responsabilité civile à la cour supérieure dans le district de Québec déposée en mars 2023 sont toujours en cours d'instance. Le 2 octobre 2023, une gestion de l'instance s'est produite conçernant des disparité entre les propositions de protocol de l'instance déposées par les parties. À cette date, le juge présent a pris des décision conçernant le déroulement de l'instance notamment : 
 
-	1. Les défendeurs ont déposés des requête en irrecevabilité pour les défendeurs la juge Johanne April, le Collège des Médecins du Québec (CMQ), le Procureur Général du Québec (PGQ), Sébastien Brodeur, Jean-Philippe Roberge, le CIUSSS de la Capitale-Nationale (CIUSSSCN) et l'Hôtel Dieu de Lévis;
-	2. Les défendeurs ont également déposés une requête en accès à des documents assez large;
-	2. La date choisie pour la représentation de ces requêtes des défendeurs conçernant la psychiatrie était le 24 octobre 2023. Pour celles de la prison la date était le 15 novembre 2023;
-	3. Les interrogatoires sur moi par la défense ont été porté au 8 et 9 février 2024 pour le dossier de la psychiatrie et au 1er mars 2024 pour le dossier de la prison
-	4. Dans les deux poursuites, le juge a octroyé un délai avant le dépôt de l'inscription pour instruction et jugement. Les dates sont donc portées à septembre 2024 pour le dossier conçernant la prison et à décembre 2024 pour le dossier conçernant la psychiatrie;
+1. Les défendeurs ont déposés des requête en irrecevabilité pour les défendeurs la juge Johanne April, le Collège des Médecins du Québec (CMQ), le Procureur Général du Québec (PGQ), Sébastien Brodeur, Jean-Philippe Roberge, le CIUSSS de la Capitale-Nationale (CIUSSSCN) et l'Hôtel Dieu de Lévis;
+2. Les défendeurs ont également déposés une requête en accès à des documents assez large;
+3. La date choisie pour la représentation de ces requêtes des défendeurs conçernant la psychiatrie était le 24 octobre 2023. Pour celles de la prison la date était le 15 novembre 2023;
+4. Les interrogatoires sur moi par la défense ont été porté au 8 et 9 février 2024 pour le dossier de la psychiatrie et au 1er mars 2024 pour le dossier de la prison
+5. Dans les deux poursuites, le juge a octroyé un délai avant le dépôt de l'inscription pour instruction et jugement. Les dates sont donc portées à septembre 2024 pour le dossier conçernant la prison et à décembre 2024 pour le dossier conçernant la psychiatrie;
 	
 Le 24 octobre 2023 : 
 
@@ -15,18 +17,18 @@ Le 24 octobre 2023 :
 
 Le 15 novembre 2023 : 
 
-	1. La défense m'a fournis des documents assez détaillé incluant certaines directives du Ministère de la Sécurité Publique conçernant les fouilles à nu et le traitement des détenus en détention quelques jours avant les représentations;
-	2. À la cour, j'ai quand même mentionné qu'il manquait certains éléments. Le juge présent a donc ordonné au défendeurs de me fournir des photos des cellules que j'occupais dans les secteurs de réclusions. Il a également demandé aux défendeurs de me mentionner s'il y a eu modification de ces cellules ou de ces secteurs depuis mon incarcération en 2019;
-	3. J'ai accepté de signer des autorisations en accès à certains documents quelques jours avant également;
-	4. Pour les photos et les précisions de la défense, le juge a donné 15 jours à ceux-ci pour me les fournir. Cela porte la date limite au 30 novembre 2023. Je n'ai pas de retour jusqu'à maintenant conçernant ces documents;
+1. La défense m'a fournis des documents assez détaillé incluant certaines directives du Ministère de la Sécurité Publique conçernant les fouilles à nu et le traitement des détenus en détention quelques jours avant les représentations;
+2. À la cour, j'ai quand même mentionné qu'il manquait certains éléments. Le juge présent a donc ordonné au défendeurs de me fournir des photos des cellules que j'occupais dans les secteurs de réclusions. Il a également demandé aux défendeurs de me mentionner s'il y a eu modification de ces cellules ou de ces secteurs depuis mon incarcération en 2019;
+3. J'ai accepté de signer des autorisations en accès à certains documents quelques jours avant également;
+4. Pour les photos et les précisions de la défense, le juge a donné 15 jours à ceux-ci pour me les fournir. Cela porte la date limite au 30 novembre 2023. Je n'ai pas de retour jusqu'à maintenant conçernant ces documents;
 	
 Ma prochaine présence requise dans ces dossiers est donc normalement portée au 8 et 9 février 2024 pour les interrogatoires de la défense. J'ai également déposé une requête pour obtenir des engagements de ne pas troubler l'ordre public (mandats de paix) pour les défendeurs du dossier de la prison donc les gardiens de prison Jean-René Brousseau et Pascal Lapierre et le policier Francis Blaney. Dans ces dossiers : 
 
-	1. Le 2 novembre 2023, je présente ma requête au juge;
-	2. Quelques jours avant cette date, le DPCP déclare l'arrêt des procédures pour le PPCP Me Matthieu Rochette qui était défendeurs au départ;
-	3. L'avocat des défendeurs mentionne qu'il pourrait y avoir d'autres arrêt des procédures pour les autres défendeurs et qu'il doit examiner le dossier. Le juge remet le dossier au 21 novembre 2023;
-	4. Dans la semaine du 6 au 10 novembre, je dépose une requête en remise de date pour ces dossiers puisque j'ai un empêchement à cause du travail le 21 novembre 2023;
-	5. Le 14 novembre 2023, un juge remet le dossier au 19 décembre 2023 pour un retour sur les décisions conçernant le dépôt d'arrêts des procédures ou pour fixer une date pour les représentations sur l'obtention de mandats de paix avec les défendeurs qui restent;
+1. Le 2 novembre 2023, je présente ma requête au juge;
+2. Quelques jours avant cette date, le DPCP déclare l'arrêt des procédures pour le PPCP Me Matthieu Rochette qui était défendeurs au départ;
+3. L'avocat des défendeurs mentionne qu'il pourrait y avoir d'autres arrêt des procédures pour les autres défendeurs et qu'il doit examiner le dossier. Le juge remet le dossier au 21 novembre 2023;
+4. Dans la semaine du 6 au 10 novembre, je dépose une requête en remise de date pour ces dossiers puisque j'ai un empêchement à cause du travail le 21 novembre 2023;
+5. Le 14 novembre 2023, un juge remet le dossier au 19 décembre 2023 pour un retour sur les décisions conçernant le dépôt d'arrêts des procédures ou pour fixer une date pour les représentations sur l'obtention de mandats de paix avec les défendeurs qui restent;
 
 Bientôt je vais modifier le répertoire github.com/vincedall/summary-report qui conçerne des poursuites criminelles de harcèlement et de voie de fait contre moi à Sherbrooke. J'entends déposer une requête en injonction interlocutoire à Sherbrooke afin de me protéger de la répétition des dommages que je mentionne dans mes poursuites civiles en lien avec une potentielle sentence dans les accusations criminelles portées contre moi. En bref, je veux éviter des menaces d'agressions sexuelles conçernant des fouilles à nu, éviter des menaces de traitement illégaux en prison, éviter de la psychiatrie forcée, éviter de la détention dans les dossiers criminels de Sherbrooke, qu'on me fournisse une date pour représenter ma requête en arrêt des procédures rapidement avant un procès éventuel, m'assurer de la civilité des procédures en évitant qu'on me touche d'aucune façon ou peu importe la raison lorsque je me présente au palai de justice à Sherbrooke et protéger mon droit de faire appel des décisions du tribunal. Cette requête d'injonction sera déposée dans un nouveau dossier à Sherbrooke (district de Saint-François). Elle sera notifiée aux défendeurs sous peu (PGQ, DPCP, Police de Sherbrooke comme défendeurs et PPCP Claude Robitaille comme mis en cause). Je vais ajouter cette requête dans le répertoire github.com/vincedall/summary-report sous peu également.
 
