@@ -15,7 +15,7 @@ Essentiellement, le dossier devra aller à procès si je peux démontrer les fau
 
 En ce qui concerne le dossier contre le gouvernement, la prison et les gardiens, je pense être en mesure d'aller à procès mais la date limite pour l'inscription est relativement éloignées au 31 octobre 2025. Cela fait en sorte que le procès serait très éloigné (probablement quelque part en 2026) d'où la mise en demeure que j'ai envoyée à l'avocat qui représente la défense dans ce dossier.
 
-5. Je pense avoir été violé à au moins une reprise, une fois dont je suis certain alors que j'étais détenu en psychiatrie à l'IUSMQ par 2 hommes et un jeune complice blond dans la vingtaine. J'aurais de l'amnésie traumatique en lien avec ces événements ce qui fait que ma mémoire de ces événements n'est que partielle. J'ai aussi des droits de recours en lien avec ces événements que je pense être en mesure de démontrer à la suite de demandes d'accès à des documents que je ferais dans le cadre d'une poursuite en responsabilité civile à la cour supérieure. Cela n'est pas mon intention pour l'instant.
+5. Je pense avoir été violé à au moins une reprise, une fois dont je suis certain alors que j'étais détenu en psychiatrie à l'IUSMQ en 2020 par 2 hommes et un jeune complice blond dans la vingtaine. J'aurais de l'amnésie traumatique en lien avec ces événements ce qui fait que ma mémoire de ces événements n'est que partielle. J'ai aussi des droits de recours en lien avec ces événements que je pense être en mesure de démontrer à la suite de demandes d'accès à des documents que je ferais dans le cadre d'une poursuite en responsabilité civile à la cour supérieure. Cela n'est pas mon intention pour l'instant.
 
 
 
