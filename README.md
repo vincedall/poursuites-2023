@@ -1,3 +1,10 @@
+Mise à jour au 29 juin 2025 : 
+1. J'ajoute au répertoire la demande de rejet des défendeurs que j'ai reçu le 26 juin 2025 dans le dossier requete-rejet-defendeurs
+
+2. Au même dossier, j'ajoute une déclaration sous serment partiellement terminée et non-signée que j'entend déposer pour potentiellement faire office de représentation. Je dois y ajouter quelques éléments comme les demandes à la cour, une meilleure précision des preuves à l'appui ainsi que certaines mentions importantes.
+
+3. J'ajoute également la dernière version de la demande introductive qui avait été complétée et déposée dans le dossier par un avocat civil que j'avais mandaté pour faire cheminer le recours durant ma détention récente.
+
 Mise à jour au 21 juin 2025 :
 1. Le 4 juin 2025 je discute longuement avec Karine Larouche une agente de probation du palai de justice de Québec. Je lui parle beaucoup de mes traumatismes concernant un suivi psychiatrique abusif et différentes agressions commises par des personne reliés au système de justice. À la rencontre suivante le 16 juin 2025 elle adopte une conduite innaproprié et injustement suggestive, accusative et interprétative. Elle me fait des menaces de déposer une accusation de bris de probation si je refuse d'effectuer un suivi thérapeutique ou psychologique qu'elle souhaite me forcer à effectuer. Elle fait cela dans un but évident de harcèlement pour que je m'inquiète pour ma sécurité considérant le contexte de litige civil et de traumatisme récent dans lequel je me trouve actuellement.
 
