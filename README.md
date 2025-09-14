@@ -1,3 +1,9 @@
+Mise à jour en date du 14 septembre 2025 : 
+- Je me suis désisté sans frais de mon recours aux psychiatres
+- Le dossier concernant la prison et les gardiens continue
+- J'ajoute un dossier concernant du harcèlement des constables spéciaux du palai de justice de Québec
+
+
 Je suis en voie de me désister de mon recours en responsabilité civile à la cour supérieure à l'endroit des 6 psychiatres.
 
 Le dossier en responsabilité civile à l'endroit des gardiens de la prison de Québec suit son cour. La date limite d'inscription est le 31 octobre 2025.
