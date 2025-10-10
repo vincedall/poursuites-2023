@@ -1,3 +1,6 @@
+Mise à jour en date du 9 octobre 2025 : 
+- J'ajoute une DII en lien avec l'événement au palai qui concerne les constables spéciaux. Celle-ci se trouve dans le dossier harc-constables-palai
+
 Mise à jour en date du 2 octobre 2025 : 
 - J'ajoute ma DII (modifiée) (remodifiée) du dossier concernant la prison
 - J'ajoute la liste de pièce à jour à laquelle la nouvelle DII fait référence
