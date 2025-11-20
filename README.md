@@ -1,5 +1,6 @@
-Mise à jour en date du 9 octobre 2025 : 
-- J'ajoute une DII en lien avec l'événement au palai qui concerne les constables spéciaux. Celle-ci se trouve dans le dossier harc-constables-palai
+Mise à jour en date du 20 novembre 2025 :
+- J'ajoute certaines des pièces du dossier concernant la prison de Québec dans prison-orsainville/pieces
+- Dans le dossier requete-modif-probation j'ajoute une requête en modification d'une ordonnance de probation que j'ai déposé au greffe criminel pour être présentée prochainement. Cette requête concerne un abus du DPCP où j'ai été condamné à 6 mois consécutifs par-dessus une détention de 2 ans sans purger concrètement les 6 mois consécutifs. Les 6 mois consécutifs ont été annulés et cela constitue la preuve que le DPCP connaissait la fragilité de son dossier qui a mené à ces 6 mois consécutifs. J'aurais pu demander un procès devant jury dans le dossier concerné. Il s'agit d'une situation complexe et la requête en question vous fournira plus de détails.
 
 Mise à jour en date du 2 octobre 2025 : 
 - J'ajoute ma DII (modifiée) (remodifiée) du dossier concernant la prison
