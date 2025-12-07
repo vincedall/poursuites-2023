@@ -1,3 +1,6 @@
+Mise à jour en date du 6 décembre 2025 : 
+- J'ajoute une demande d'injonction au Ministère de la Santé et des Services Sociaux du Québec en lien avec les institutions psychiatriques dans le dossier injonction-msss-psychiatrie
+
 Mise à jour en date du 20 novembre 2025 :
 - J'ajoute certaines des pièces du dossier concernant la prison de Québec dans prison-orsainville/pieces
 - Dans le dossier requete-modif-probation j'ajoute une requête en modification d'une ordonnance de probation que j'ai déposé au greffe criminel pour être présentée prochainement. Cette requête concerne un abus du DPCP où j'ai été condamné à 6 mois consécutifs par-dessus une détention de 2 ans sans purger concrètement les 6 mois consécutifs. Les 6 mois consécutifs ont été annulés et cela constitue la preuve que le DPCP connaissait la fragilité de son dossier qui a mené à ces 6 mois consécutifs. J'aurais pu demander un procès devant jury dans le dossier concerné. Il s'agit d'une situation complexe et la requête en question vous fournira plus de détails.
