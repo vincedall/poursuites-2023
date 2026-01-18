@@ -1,3 +1,7 @@
+Mise à jour en date du 18 janvier 2026 :
+- Dernièrement j'ai ajouté une injonction en lien avec le comportement de certains membre du personnel du SPVQ dans injonction-spvq-28dec2025. La DII de ce dossier est déjà déposée.
+- J'ajoute aujourd'hui une demande introductive d'une nouvelle poursuite en responsabilité civile en lien avec des fautes du gouvernement et de l'agent correctionnel Lapierre pour des événements qui se sont produits en mai 2024. Cette demande sera déposée prochainement.
+
 Mise à jour en date du 6 décembre 2025 : 
 - J'ajoute une demande d'injonction au Ministère de la Santé et des Services Sociaux du Québec en lien avec les institutions psychiatriques dans le dossier injonction-msss-psychiatrie
 
