@@ -1,3 +1,6 @@
+Mise a jour en date du 1er fevrier 2026 :
+- Je retire la DII du dossier de la prison. Le reste du dossier demeure disponible.
+
 Mise à jour en date du 18 janvier 2026 :
 - Dernièrement j'ai ajouté une injonction en lien avec le comportement de certains membre du personnel du SPVQ dans injonction-spvq-28dec2025. La DII de ce dossier est déjà déposée.
 
