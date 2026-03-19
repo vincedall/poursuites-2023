@@ -1,3 +1,13 @@
+Mise à jour en date du 18 mars 2026 :
+
+- J'ai déposé deux nouveaux dossiers de poursuites en responsabilité civile au greffe du palai de justice aujourd'hui.
+
+- Un des dossiers concerne Me Denis Richard et le Ministère de la Justice du Québec en ce qui concerne de la négligence et de l'entrave à la justice en ce qui concerne les blessures que j'avais subis en novembre 2019 ainsi qu'un enregistrement modifié d'une audience le 8 novembre 2019. Dans l'enregistrement que j'avais demandé récemment, il apparaît que je n'étais pas présent lors des audiences le 8 novembre 2019 alors que j'y étais. C'est le juge Christian Boulet qui était présent cette journée et qui a entendu mon dossier. Cela est d'autant plus important, parce que l'enregistrement me donne plus de poid pour contester un verdict de non-responsabilité criminelle que j'avais plaidé en mai 2021 alors que le juge Christian Boulet siégeait également à cette audience. L'entrée du plumitif qui concerne l'audience du 8 novembre 2019 confirme ma présence à cette audience.
+
+- Lors des audiences du 8 novembre 2019, le juge Christian Boulet avait ommis d'intervenir concernant des blessures corporelles sérieuses et inquiétantes que j'arborais. Il m'avait également dit que 'ce n'était pas de ma faute si je suis malade mental'.
+
+- Vous trouverez ces nouveaux éléments dans les dossiers dpcp-belizaire, pgq-richard et plainte-boulet.
+
 Mise a jour en date du 1er fevrier 2026 :
 - Je retire la DII du dossier de la prison. Le reste du dossier demeure disponible.
 
