@@ -1,15 +1,25 @@
 Au 6 mai 2026, encore 4 dossiers en cour supérieure:
+
 	1. Poursuites contre 2 agents correctionnels, 1 enquêteur de la SQ, un procureur du DPCP et le Ministère de la Sécurité Publique inscrit à procès en septembre 2026 (lésions corporelles, menaces, négligence, entrave)
+	
 	2. Une poursuite contre Denis Richard et le Ministère de la justice (négligence causant des lésions, entrave à la justice)
+	
 	3. Une poursuite contre une procureure du DPCP et le Ministère (poursuite abusive, entrave à la justice)
+	
 	4. Une injonction au SPVQ (harcèlement)
 
 Plusieurs dossiers non-prescrits potentiellement prévus pour les prochaines années:
+
 	1. Lapierre et le PGQ (harcèlement, négligence, complot criminel)
+
 	2. IUSMQ ou Santé Québec et plusieurs fonctionnaires de l'IUSMQ (complot pour viol, lésions corporelles, harcèlement, négligence, entrave)
+	
 	3. CISSS-CA, 2 fonctionnaires du CISSS-CA (complot pour viol, lésions corporelles, harcèlement, menaces, blessures psychologiques, prescrit partiellement)
+	
 	4. Contentieux de l'IUSMQ (manipulation contrats appel d'offre déc 2023, octroi de deux contrats suspects en 2025 pour méfait public)
+	
 	5. Agentes de probation et un procureur du DPCP (harcèlement, fausses accusations/méfait public, entrave à la justice)
+	
 	6. Autres événements
 
 Les fautes dénoncées dans ma poursuite aux agents correctionnels ne sont pas prescrites. Non seulement, Lapierre a commis des fautes supplémentaires en 2024, mais un rejet de la poursuite déjà active, ne pourra pas mettre fin au droit de recours qui sera testé à procès en septembre. Il n'est pas dans l'intérêt des défendeurs de se rendre à procès puisque je pourrai déposer une poursuite qui concerne les mêmes événements en plus d'une deuxième qui concerne des événements qui se sont ajoutés.
